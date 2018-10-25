@@ -1,1 +1,1 @@
-Ruijing Xiong 
+Ruijing Xiong Baseball team: Red Sox
